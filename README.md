@@ -8,7 +8,7 @@
 ![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/56e0567bb7ffc131be304310aa590c23866df82f/tumblr_1ebf9e095011477403489416b14cd1de_53752b42_2048.png)
 
 
-![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/4e6d92a1f937f470e22afa41e93c60aac7a0aff9/Lumii_20250207_161009975.png)
+![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/e84136246c6f2c777cdd2792d2a08407541b122e/Lumii_20250207_161852872.png)
 
 
 
