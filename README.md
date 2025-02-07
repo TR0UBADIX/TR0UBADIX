@@ -1,1 +1,1 @@
-wip
+![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/56e0567bb7ffc131be304310aa590c23866df82f/tumblr_1ebf9e095011477403489416b14cd1de_53752b42_2048.png)
