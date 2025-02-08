@@ -13,3 +13,6 @@
 
 
 ![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/aff9c5b7287d05c11083e429043c70da34378069/Titelloses%20308_20250207152721.png)
+
+
+[My Main](https://github.com/BleedingCannibal)
