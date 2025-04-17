@@ -6,6 +6,10 @@
 ![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/83fe38a30d2b0f79b6a7f0bbc2f79086f31dbc8b/tumblr_3ade25936d921f22ca6b5a9f5e4119c0_a9f97aa4_1280.png)
 
 
+![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/dff7c085a335c301cff5c5a3bb5762bdb6f8c2ba/Asterix%20-%20Operation%20Hinkelstein%20-%20Miraculix_s%20Erinnerungssong.mp4)
+
+
+
 [My Main](https://github.com/BleedingCannibal)   ★   [Strawpage](https://donk3yssxxxx.straw.page/)  ★  [drawings + Messages - strawpage](https://drawingspacee.straw.page/) 
 
 
