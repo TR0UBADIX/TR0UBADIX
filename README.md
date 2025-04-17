@@ -13,4 +13,3 @@
 [My Main](https://github.com/BleedingCannibal)   ★   [Strawpage](https://donk3yssxxxx.straw.page/)  ★  [drawings + Messages - strawpage](https://drawingspacee.straw.page/) 
 
 
-![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/19c147a14b148783faf276a56d190efedabe914e/95d217e6.gif)
