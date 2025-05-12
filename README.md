@@ -13,7 +13,7 @@
 
 
 
-[My Main](https://github.com/SACRlFICE)   ★   [Strawpage](https://donk3yssxxxx.straw.page/)  ★  [drawings + Messages - strawpage](https://drawingspacee.straw.page/) 
+[My Main](https://github.com/SACRlFICE)   ★   (currently remaking)  ★  (currently remaking) 
 
 
 
