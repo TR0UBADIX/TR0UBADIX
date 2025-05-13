@@ -4,7 +4,7 @@
 ![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/83fe38a30d2b0f79b6a7f0bbc2f79086f31dbc8b/tumblr_3ade25936d921f22ca6b5a9f5e4119c0_a9f97aa4_1280.png)
 
 
-![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/b87eb5cd081b89d65246835f391fdd9f57636beb/Titelloses%20305_20250118121457.png)
+![★](https://github.com/TR0UBADIX/TR0UBADIX/blob/c5b6e94368b347e675021d5d4ba6c60a985c1878/Titelloses%20305_20250118121457.png)
 
 
 
