@@ -15,7 +15,7 @@
 
 
 
-[My Main](https://github.com/SACRlFICE)   ★   (currently remaking)  ★  (currently remaking) 
+[My Main](https://github.com/SACRlFICE)   ★ 
 
 
 
